@@ -9,7 +9,7 @@
   <table>
     <tr>
       <td>
-      $${\color{#b48cbf}14/12/24}$$　<img src="https://files.catbox.moe/4v63dl.gif" width="20" alt="@pwppy">　 $${\color{#b48cbf}FOUR \space . \space FIVE}$$ <br>
+      $${\color{#b48cbf}14 \space / \space 12 \space / \space 24}$$　<img src="https://files.catbox.moe/4v63dl.gif" width="20" alt="@pwppy">　 $${\color{#b48cbf}FOUR \space . \space FIVE}$$ <br>
       </td>
     </tr>
   </table>
