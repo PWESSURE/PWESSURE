@@ -14,7 +14,7 @@
     </tr>
   </table>
 
-<img src="https://files.catbox.moe/qr7oyo.gif" width="20" alt="@pwppy">　ponytown's deep sea buddy !
+<img src="https://files.catbox.moe/qr7oyo.gif" width="20" alt="@pwppy"> <img src="https://files.catbox.moe/hfo7ri.png" width="20" alt="@pwppy">　PT's deep sea buddy !　 <img src="https://files.catbox.moe/gv294o.gif" width="20" alt="@pwppy">
 
 <img src="https://files.catbox.moe/8a6tnf.gif" width="70" height="20" alt="@pwppy"> <img src="https://files.catbox.moe/u6sup6.gif" width="170" height="20" alt="@pwppy">
 
@@ -22,9 +22,7 @@
 
 𓎢𓎟　go follow my [main](https://github.com/pwppy) 　<img src="https://files.catbox.moe/fpfqhc.gif" width="20" alt="@pwppy"> <img src="https://files.catbox.moe/gyzajt.png" width="20" alt="@pwppy">
 
-<img src="https://files.catbox.moe/hfo7ri.png" width="20" alt="@pwppy"> <img src="https://files.catbox.moe/gv294o.gif" width="20" alt="@pwppy">　attached to roblox skins
-
-<img src="https://files.catbox.moe/ln1j2n.gif" width="120" height="40" alt="@pwppy"> <img src="https://files.catbox.moe/fetrdn.gif" width="120" height="40" alt="@pwppy">
+<img src="https://files.catbox.moe/ln1j2n.gif" width="120" height="60" alt="@pwppy"> <img src="https://files.catbox.moe/fetrdn.gif" width="120" height="60" alt="@pwppy">
 
 <img src="https://files.catbox.moe/16j0bv.gif" width="700" alt="@pwppy">
 
