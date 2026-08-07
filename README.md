@@ -2,28 +2,29 @@
 
 
 
-<img src="https://files.catbox.moe/gomovw.gif" width="400" align="left" alt="@pwppy">
+<img src="https://files.catbox.moe/gicj5o.gif" width="400" align="left" alt="@pwppy">
 
 <br>
 <br>
   <table>
     <tr>
       <td>
-        <br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info<br>
-      info info info info info info info info
-        <br>
-          <br>
+      $${\color{#b48cbf}14/12/24}$$　<img src="https://files.catbox.moe/4v63dl.gif" width="20" alt="@pwppy">　 $${\color{#b48cbf}FOUR.FIVE}$$ <br>
       </td>
     </tr>
   </table>
+
+<img src="https://files.catbox.moe/qr7oyo.gif" width="20" alt="@pwppy">　ponytown's deep sea buddy !
+
+<img src="https://files.catbox.moe/8a6tnf.gif" width="70" height="20" alt="@pwppy"> <img src="https://files.catbox.moe/u6sup6.gif" width="170" height="20" alt="@pwppy">
+
+<img src="https://files.catbox.moe/3fbe4t.gif" width="170" height="20" alt="@pwppy"> <img src="https://files.catbox.moe/n7jn1x.gif" width="70" height="20" alt="@pwppy">
+
+𓎢𓎟　go follow my [main](https://github.com/pwppy) 　<img src="https://files.catbox.moe/fpfqhc.gif" width="20" alt="@pwppy"> <img src="https://files.catbox.moe/gyzajt.png" width="20" alt="@pwppy">
+
+<img src="https://files.catbox.moe/hfo7ri.png" width="20" alt="@pwppy"> <img src="https://files.catbox.moe/gv294o.gif" width="20" alt="@pwppy">　attached to roblox skins
+
+<img src="https://files.catbox.moe/ln1j2n.gif" width="120" height="40" alt="@pwppy"> <img src="https://files.catbox.moe/fetrdn.gif" width="120" height="40" alt="@pwppy">
 
 <img src="https://files.catbox.moe/16j0bv.gif" width="700" alt="@pwppy">
 
